@@ -7,6 +7,5 @@ hewrbfhrbfjdsjdv hvgwhvbhv
 vhadbcvdhjsdwddbvvbcdhbvh
 bvvbhbfdbv vbhdfbvjhksadbvdjnvsjk
 bvdhvbsdhbvhsd hdsbvhdsbvhdbsjvhbadj
-hbds   chadbh
- bc. bc vbhscvhsddffsd. bhsdbhndsb
+hbds    bhsdbhndsb
  wwawyduwiudhdued
