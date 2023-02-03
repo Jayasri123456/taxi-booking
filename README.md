@@ -8,7 +8,5 @@ vhadbcvdhjsdwddbvvbcdhbvh
 bvvbhbfdbv vbhdfbvjhksadbvdjnvsjk
 bvdhvbsdhbvhsd hdsbvhdsbvhdbsjvhbadj
 hbds   chadbh
- bc. bc vbhscvhsddffsd. bhsdbhndsbhdsb
- dscv sbd chdsbsahb
- dywdywhdwuidhwik
- wwawyduwiud
+ bc. bc vbhscvhsddffsd. bhsdbhndsb
+ wwawyduwiudhdued
